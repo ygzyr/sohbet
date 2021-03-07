@@ -1,0 +1,1 @@
+bu site ı'm lordundur

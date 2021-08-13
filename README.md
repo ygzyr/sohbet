@@ -1,1 +1,1 @@
-bu site ı'm lordundur
+Hatırası Var Diye Saklıyorum
